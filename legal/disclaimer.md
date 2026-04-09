@@ -4,7 +4,7 @@
 
 **Intended for mature audiences only**
 
-Uncensored Souls is intended strictly for adults.
+USouls AI is intended strictly for adults.
 
 - The app includes two built-in example characters and one preconfigured multi-chat created by the developer to help new users get started quickly and understand how the app works.
 - All additional characters, conversations, roleplay scenarios and generated images are created and fully controlled by the user.
